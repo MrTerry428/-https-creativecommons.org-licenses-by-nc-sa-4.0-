@@ -1,4 +1,4 @@
-# -https-creativecommons.org-licenses-by-nc-sa-4.0-
+https://github.com/MrTerry428?tab=repositories © 2026 by Terry Vines is licensed under CC BY-NC-SA 4.0. To view a copy of this license, visit https://creativecommons.org/licenses/by-nc-sa/4.0/# -https-creativecommons.org-licenses-by-nc-sa-4.0-
 ALL WORKS AND PAPERS HERE IN REP0SITORY ARE UNDER   https://creativecommons.org/licenses/by-nc-sa/4.0/
 ALL NOTICE TO ALL , ALL THE PAPERS IN THIS REPOSITOTY ARE COVERED UNDER    https://creativecommons.org/licenses/by-nc-sa/4.0/
 Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International
