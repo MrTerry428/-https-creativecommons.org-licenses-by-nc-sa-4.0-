@@ -6,4 +6,4 @@ This license requires that reusers give credit to the creator. It allows reusers
 
 BY Credit must be given to you, the creator.
 NC Only noncommercial use of your work is permitted. Noncommercial means not primarily intended for or directed towards commercial advantage or monetary compensation.
-SA Adaptations must be shared under the same terms.
+SA Adaptations must be shared under the same terms..
